@@ -1,2 +1,0 @@
-# alkitabapp
-# alkitabapp
